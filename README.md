@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ange-Mukundente
+- 👀 I’m interested in making software in hospital improved.
+- 🌱 I’m currently learning at ALU in software engineering
+- 💞️ I’m looking to collaborate on improving software used in hospitals
+- 📫 How to reach me: Mobile& WhatsApp number:+250786160692. Email adress: a.mukundent@alustudent.com
